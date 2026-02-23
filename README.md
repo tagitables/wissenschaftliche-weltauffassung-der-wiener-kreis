@@ -1,1 +1,1 @@
-# -wissenschaftliche-weltauffassung-der-wiener-kreis
+# wissenschaftliche-weltauffassung-der-wiener-kreis
